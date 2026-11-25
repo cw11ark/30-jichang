@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：纯公网直连与原生家宽IP，原帖建议作为临时备用。**
 >
-> 👉 **[官网注册](https://s1.thefew01.top/#/register?code=neRK4ldm)** · 建议从 个人版200G 的短周期开始，先核对客户端和常用节点。
+> 👉 **[官网注册](https://s1.thefew01.top/#/register?code=8d4VZGPI)** · 建议从 个人版200G 的短周期开始，先核对客户端和常用节点。
 >
 
 >
@@ -63,7 +63,7 @@
 
 ## 注册
 
-👉 **[前往少数派注册页面](https://s1.thefew01.top/#/register?code=neRK4ldm)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
+👉 **[前往少数派注册页面](https://s1.thefew01.top/#/register?code=8d4VZGPI)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
 
 ## 更新
 
